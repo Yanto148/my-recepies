@@ -2,7 +2,7 @@
 
 ## Ingredients
 
-- 1 cup uncooked white rice
+- 3 cup uncooked white rice
 - 2 cups water
 - cooking spray
 - 4 eggs, beaten
